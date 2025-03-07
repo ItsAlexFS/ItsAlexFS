@@ -1,5 +1,5 @@
 ## ts 💔 (this)
-![unknown](https://github.com/user-attachments/assets/348b0abe-77db-4add-a0c2-4c680f4b3cd9) | width =200
+![unknown](https://github.com/user-attachments/assets/348b0abe-77db-4add-a0c2-4c680f4b3cd9|width =200)
 # LOCK IN OR NOT (me frfr)
 ![lockinornot](https://github.com/user-attachments/assets/fa935207-1d9d-476f-910f-850783e2a858)
 
