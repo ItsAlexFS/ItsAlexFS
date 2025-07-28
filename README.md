@@ -1,6 +1,4 @@
-# ts 💔 (this)
-<img src="https://github.com/user-attachments/assets/348b0abe-77db-4add-a0c2-4c680f4b3cd9" width=1000px height=300px> </br>
-# TIME TO LOCK IN? (not today)
+# TIME TO LOCK IN
 <img src="https://github.com/user-attachments/assets/fa935207-1d9d-476f-910f-850783e2a858" width=1000px height=300px>
 
 
