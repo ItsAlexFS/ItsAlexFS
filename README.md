@@ -1,6 +1,5 @@
-# TIME TO LOCK IN
-<img src="https://github.com/user-attachments/assets/fa935207-1d9d-476f-910f-850783e2a858" width=1000px height=300px>
-
+# Howdy 🫡
+<img src="https://preview.redd.it/p87xcapwpau01.png?auto=webp&s=3e8d7d95a44b71b9e102c74731cf6245f40d7527">
 
 <!--
 **ItsAlexFS/ItsAlexFS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
